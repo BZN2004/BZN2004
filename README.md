@@ -11,7 +11,7 @@
  
  -🦇Night shift staff member
  
- -⚡ Fun fact: I am open for internships and other offers
+ -🗿 Fun fact: I am open for internships and other offers
  
  -📫 How to reach me: LastITCrusader@gmail.com
  
