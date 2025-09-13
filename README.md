@@ -1,4 +1,4 @@
-## Hello there my name is Bandile👋
+## Hello my name is Bandile👋
 
 
  -😎 I'm invested into web development and programming
